@@ -1,1 +1,1 @@
-“what a beauty”
+“God is good”
